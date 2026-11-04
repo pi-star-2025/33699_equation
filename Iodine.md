@@ -9,8 +9,8 @@ The squeezing of many black holes (white holes) by a larger black hole is simila
 
 …
 
-In particular, if there are exactly *2* smaller black holes and *1* super black hole, the squeeze is similar to the element iodine, indicating this architecture is common in life.
+In particular, if there are exactly *2* smaller black holes and *1* super black hole, the squeeze is similar to the element iodine (18/18/7), indicating this architecture is common in life.
 
 Iodine is what most creates an environment for gold, by creating the freewill of light (at the 3.14 level) to squeeze out water from space-time. 
 
-With iodine and this 3 black hole pattern, the 33, 6, and 99 individually are all physical light, with mass, because they don’t fall into the 3.1415 level. Because the larger light can squeeze the smaller light, without falling into the 3.1415 layer like gold falls in, iodine gives the stars the ability on earth to create an environment that is water-rich.
+With iodine and this 3 black hole pattern, the 33, 6, and 99 individually are all physical light, with mass, because they don’t fall into the 3.1415 level. Because the larger light can squeeze the smaller light, without falling into the 3.1415 layer like gold falls in (18/*32*/18), iodine gives the stars the ability on earth to create an environment rich with water. The quantum 18-18-7 shapes the quantum oxygen, rendering the blue light very tiny, because of a strong focus from deep space.
