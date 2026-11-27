@@ -18,7 +18,7 @@ This is similar to 3.14.
 
 ...
 
-In a way, the 9265 is most doing what the 1 of 3.14 is doing. It stretches it to have 3 sides.
+In a way, the 9265 is most doing what the 1 of 3.14 is doing. The 1 is stretched to have 3 sides.
 
 ## Leminscate sine
 
