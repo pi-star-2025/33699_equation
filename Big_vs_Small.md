@@ -41,3 +41,17 @@ There is inflation with the 92, and then compression with 65, of the same vision
 ...
 
 Hence, from the equation, (((92/(3 * 4 * 5))/65/7) * 100 ≈ 0.33699633699633699, the 92 is both the 33 and the 99, bc it has looked ahead to both sides. Then 6 in between is the 65 which is a bend in space. 
+
+## Extra: 4D/6D/8D
+
+Big vs Small in the 4D comes down to speed. The faster you go with the 92 of 3.14159265 (of π), the further you can go in space-time when flipping with the 9, resulting in a longer 4D axis and steeper blackhole. The universe is larger. On top you go faster than c (as measured by e), and below you go at the speed of c, merged into matter (i.e. e = mc^2). On top is 92 and below is 65 (in regards to the 4D).
+
+Big vs Small in the 8D comes down to speed as well, but in particular the speed of golden light, projected to exist forever. This would be the smallest details of history that exist forever for 1 reason. For example, if you wanted to "time travel" this could be of consideration. You, supposedly, might want to use a case of 5-10 historical details of your spell's importance to help cast it, by illuminating an 8D pipe. It would not just be about speed, but about what historically has made the 8D mind go faster.
+
+An example of the 4D is a star or heart, which extends its vision with speed to understand multiple planets/joints. It first hears (92) then holds space-time (65).
+
+An example of the 8D is the eyes, and even the north/south poles, which use criss-crossing (ex: with hydrogen) to go very, very fast. In this case, these details already exist as "the light of lights", but can still be traced to criss-crosses in the eyes and frozen H2O. 
+
+These historical details of a soul/planet are the 3.14, not becoming mass but instead the color around you. 
+
+If the color/environment around you is *potentially* gold, it might not be 8D, but 6D. The 6D is history that matters most to the starmind/earthmind.
