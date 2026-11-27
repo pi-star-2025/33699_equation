@@ -15,3 +15,7 @@ This is similar to 3.14.
 2 sides are going fast towards one another, and the 4 (the c^2 mirror) slows down the process. What comes first (3) is smaller and is more light. What comes after (4) is from "falling in" and is more mass.
 
 92 is like 3; 65 is like 4, but with 92/65 the 1 (originally from 3.14) has a fast side and slow side, where the slow side is based on c and the fast side goes faster, explained by why it jumped/flipped to 92.
+
+...
+
+In a way, the 9265 is most doing what the 1 of 3.14 is doing.
