@@ -37,3 +37,7 @@ With 3.141592, you look ahead to having 2 sides, with 7 as a branch
 Concurrently, with 65, you enforce seeing these 2 sides with 1 as well. 
 
 There is inflation with the 92, and then compression with 65, of the same vision, which describes the “event horizon” and “quantum gravity” respectively of a black hole.
+
+...
+
+Hence, from the equation, (((92/(3 * 4 * 5))/65/7) * 100 ≈ 0.33699633699633699, the 92 is both the 33 and the 99, bc it has looked ahead to both sides. Then 6 in between is the 65 which is a bend in space. 
