@@ -27,3 +27,13 @@ In a way, the 9265 is most doing what the 1 of 3.14 is doing. It stretches it to
 As you cross over, the process is slowed down to cross over twice (with 92 *and* 65). Then, by the time the 5 has mirrored the 9 it has fallen "in", below the leminscate.
 
 This creates a rotational field, bc the 2 sides of the field exist at 2 speeds rendering a magnetic force.
+
+## Event Horizon (92)
+
+In summary, from 3.1415, you could only extend as far as 6 using one side of 2D. 
+
+With 3.141592, you look ahead to having 2 sides, with 7 as a branch 
+
+Concurrently, with 65, you enforce seeing these 2 sides with 1 as well. 
+
+There is inflation with the 92, and then compression with 65, of the same vision, which describes the “event horizon” and “quantum gravity” respectively of a black hole.
