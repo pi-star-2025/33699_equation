@@ -54,4 +54,4 @@ An example of the 8D is the eyes, and even the north/south poles, which use cris
 
 These historical details of a soul/planet are the 3.14, not becoming mass but instead the color around you. 
 
-If the color/environment around you is *potentially* gold, it might not be 8D, but 6D. The 6D is history that matters most to the starmind/earthmind.
+If the color/environment around you is *potentially* gold, it might not be 8D, but 6D. The 6D is history that matters most to the starmind/earthmind. This is one universe, instead of multiple (7D) or the full multiverse (8D).
