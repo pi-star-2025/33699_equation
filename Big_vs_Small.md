@@ -19,3 +19,11 @@ This is similar to 3.14.
 ...
 
 In a way, the 9265 is most doing what the 1 of 3.14 is doing. It stretches it to have 3 sides.
+
+## Leminscate sine
+
+9265 is like the leminscate sine (infinity sign), but the 6 is below and in between the 2 "eyes". 
+
+As you cross over, the process is slowed down to cross over twice (with 92 *and* 65). Then, by the time the 5 has mirrored the 9 it has fallen "in", below the leminscate.
+
+This creates a rotational field, bc the 2 sides of the field exist at 2 speeds rendering a magnetic force.
