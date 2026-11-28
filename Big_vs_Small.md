@@ -40,7 +40,7 @@ There is inflation with the 92, and then compression with 65, of the same vision
 
 ...
 
-Hence, from the equation, (((92/(3 * 4 * 5))/65/7) * 100 ≈ 0.33699633699633699, the 92 is both the 33 and the 99, bc it has looked ahead to both sides. Then 6 in between is the 65 which is a bend in space. 
+Hence, from the equation, (((92/(3 * 4 * 5))/65/7) * 100 ≈ 0.33699633699633699, the 92 is both the 33 and the 99, bc it has looked ahead to both sides. Then 6 in between is the 65 which is a bend in space. (65 is covering the same space as 92)
 
 ## Extra: 4D/6D/8D
 
